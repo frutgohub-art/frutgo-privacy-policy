@@ -78,5 +78,5 @@ We may update this Privacy Policy from time to time to reflect operational or le
 ## 8. Contact Us
 
 If you have questions, concerns, or requests regarding this Privacy Policy or data protection practices, please contact us at:
-* **Email**: support@frutgohub.com
+* **Email**: jayasuryafrutgo@gmail.com
 * **App Support**: Available via the FrutGo Profile & Support Hub
